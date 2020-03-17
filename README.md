@@ -1,2 +1,3 @@
-# -
-秃头之旅
+Hi humans
+i like codes!
+im be more power
